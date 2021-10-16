@@ -1,0 +1,2 @@
+# GAME18
+A GAME DEVELOPED BY ⟨«Yaver Javid»⟩
